@@ -1,0 +1,1 @@
+# Arid-mod-no-inventory-hack
